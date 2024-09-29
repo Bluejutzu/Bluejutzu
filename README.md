@@ -1,2 +1,2 @@
 ## There's nothing over here
-probably almost my projects were just dumps
+probably almost all my projects were just dumps
